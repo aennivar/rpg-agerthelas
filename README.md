@@ -1,3 +1,9 @@
+Link para o Notion (lore, personagem e alteregos):
+
+https://www.notion.so/aennivar/Agerthelas-1fe9506f45b18022b558fcde1ede9c60
+
+/div
+
 ### Motivação pra viajar/se aventurar
 
 - Fazer “favores” para sua guilda (os “Melhores Amigos”);
